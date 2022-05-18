@@ -1,2 +1,2 @@
-Jiung 20223048
+Jiung	20223048
 Kookmin Univ. SW
