@@ -1,1 +1,2 @@
-20223048 
+20223048 Jiung
+Kookmin Univ. SW
